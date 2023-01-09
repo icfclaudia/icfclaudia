@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+👩🏻‍💼 I'm Claudia. I work as a full-time product manager.
+
+I plan and oversee projects from the initial ideation through to completion. To accomplish this, I devise solutions to genuine pains, encourage team members to seek results and quickly adapt to new insights. I have enjoyed endeavours in diverse industries throughout my career in project management, sales representative, content writer and recruiter.
+
+- 📫 Checkout [my website](https://icfclaudia.com) for more details on my work, my blog and my contact info!
+- ⚡ Fun fact: I’m a cat person 🐈
+
 <!--
 **icfclaudia/icfclaudia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
