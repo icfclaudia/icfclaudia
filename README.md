@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-👩🏻‍💼 I'm Claudia. I work as a full-time product manager.
+👩🏻‍💼 I'm Claudia. I'm a Product Manager [@Bloomidea](https://bloomidea.com).
 
 I plan and oversee projects from the initial ideation through to completion. To accomplish this, I devise solutions to genuine pains, encourage team members to seek results and quickly adapt to new insights. I have enjoyed endeavours in diverse industries throughout my career in project management, sales representative, content writer and recruiter.
 
