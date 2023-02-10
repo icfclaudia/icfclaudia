@@ -5,12 +5,12 @@
 I plan and oversee projects from the initial ideation through to completion. To accomplish this, I devise solutions to genuine pains, encourage team members to seek results and quickly adapt to new insights. I have enjoyed endeavours in diverse industries throughout my career in project management, sales representative, content writer and recruiter.
 
 #### My personal and professional experiences have taught me the following about myself:
-**I can successfully turn concepts into +25 functional applications.**
+**I can successfully turn concepts into +40 functional applications.**
 - I put the user at the centre of all I do
 - I excel at predicting and removing roadblocks
 - I strive to optimize processes
 
-**I can align, lead and evolve 3 to 7-members product teams into delivering superb results.**
+**I can align, lead and evolve 3 to 8-members product teams into delivering superb results.**
 - I love to win, but helping the team win gives me greater joy
 - I speak tech and exec
 - I convert a teammates frustration into motivation
